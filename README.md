@@ -1,2 +1,2 @@
-# Obby-but
-Obey but ur a baby
+# idk this my first thing ever
+hi
